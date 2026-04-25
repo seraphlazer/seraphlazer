@@ -20,7 +20,7 @@ $\texttt{\color{#ab0e19} ‎ hyper / star  }$
 
 ![image](https://files.catbox.moe/x067d6.jpg)
 
- $\texttt{\color{#ab0e19}  ᧔♡᧓  }$   [prns .](https://pronouns.cc/@BODY-THE-PISTOL)    $\texttt{\color{#ab0e19}  ᧔♡᧓  }$  [ata .](https://your-angel.atabook.org/)    $\texttt{\color{#ab0e19}  ᧔♡᧓  }$ [guns .](https://guns.lol/seraphlaser) $\texttt{\color{#ab0e19}  ᧔♡᧓  }$
+ $\texttt{\color{#ab0e19}  ᧔♡᧓  }$   [prns .](https://pronouns.cc/kittylaser)    $\texttt{\color{#ab0e19}  ᧔♡᧓  }$  [ata .](https://your-angel.atabook.org/)    $\texttt{\color{#ab0e19}  ᧔♡᧓  }$ [guns .](https://guns.lol/seraphlaser) $\texttt{\color{#ab0e19}  ᧔♡᧓  }$
 
 
 
