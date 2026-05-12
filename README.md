@@ -45,4 +45,6 @@ $\texttt{\color{#3c0000} ‎that}$ $\texttt{\color{#670010} ‎is }$ $\texttt{\c
 ![image](https://files.catbox.moe/7ymcc4.png)
 
 
+$\texttt{\color{#960018} i }$ $\texttt{\color{#960018} wish }$ $\texttt{\color{#960018} you }$ $\texttt{\color{#960018} were }$ $\texttt{\color{#960018} here }$ $\texttt{\color{#960018} with }$ $\texttt{\color{#960018} me }$
 
+$\texttt{\color{#960018} to }$ $\texttt{\color{#960018} pass }$ $\texttt{\color{#960018} the }$ $\texttt{\color{#960018} dull }$ $\texttt{\color{#960018} weekends }$
