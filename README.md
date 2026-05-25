@@ -5,7 +5,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1000&pause=500&color=830916&center=true&width=235&lines=i+want+;hair+like+yours;hands+like+yours+;fingers+that;curl+in+the+cold;like+yours;i+want+eyes;+to+stare;and+to+cry;when+im+feeling+;scared;like+you)](https://git.io/typing-svg)
 
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=seraphlazer.stars&left_color=black&right_color=darkred&left_text=saints%20)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=darkred&left_text=saints%20)
    
   <div align="center">
 
