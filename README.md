@@ -9,6 +9,7 @@
    
   <div align="center">
 
+$\texttt{\color{#960018} <3 beef :p }$
 
 <html></html>
 <img src="https://files.catbox.moe/wjcsf8.png"width="300px"height="800px">
