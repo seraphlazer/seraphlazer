@@ -35,7 +35,7 @@ $\texttt{\color{#3c0000} ‎that}$ $\texttt{\color{#670010} ‎is }$ $\texttt{\c
 
 
 <html>
-<img src="https://files.catbox.moe/qm4ff1.png"width="300px"height="800px">
+<img src="https://files.catbox.moe/5p3ftr.png"width="300px"height="800px">
 
 
 
