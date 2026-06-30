@@ -42,7 +42,7 @@ $\texttt{\color{#3c0000} ‎that}$ $\texttt{\color{#670010} ‎is }$ $\texttt{\c
 [ponytowns](https://github.com/title-town) $\texttt{\color{#960018} hyperlaser }$ 
 
 
- $\texttt{\color{#ab0e19}  ᧔♡᧓  }$   [prns .](https://pronouns.cc/@seraphlaser)    $\texttt{\color{#ab0e19}  ᧔♡᧓  }$  [ata .](https://hyperlazer.atabook.org/)    $\texttt{\color{#ab0e19}  ᧔♡᧓  }$ [guns .](https://guns.lol/seraphlaser) $\texttt{\color{#ab0e19}  ᧔♡᧓  }$
+ $\texttt{\color{#ab0e19}  ᧔♡᧓  }$   [prns .](https://pronouns.cc/@hyperIaser)    $\texttt{\color{#ab0e19}  ᧔♡᧓  }$  [ata .](https://hyperlazer.atabook.org/)    $\texttt{\color{#ab0e19}  ᧔♡᧓  }$ [guns .](https://guns.lol/seraphlaser) $\texttt{\color{#ab0e19}  ᧔♡᧓  }$
 
 
 
