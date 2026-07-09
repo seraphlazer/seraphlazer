@@ -4,9 +4,9 @@
    
    <img src="https://files.catbox.moe/34t595.png" align="left" width="380px" /> 
    
-   ![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs&color=925283&label=I_<3_TV!) 
+   ![](https://komarev.com/ghpvc/?username=seraphlazer&color=21517b&label=TARGETS_SPOTTED) 
    
-   ${{\color{#00000} redo }}$ 
+   restated profile views i guess
    
    <p align="center"> 
       
@@ -26,6 +26,6 @@ ${{\color{#f9f0b1} ㅤㅤㅤㅤ }}$
    
    <div align="center"/> 
       
-space saving ㅤㅤ
+\space space saving ㅤㅤ
 
 <img src="https://files.catbox.moe/j0nk9i.png" align="center" width="890px" />
