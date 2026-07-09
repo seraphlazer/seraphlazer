@@ -24,7 +24,7 @@
 |------------------------------|
 
 ${{\color{#81b6c3} @ ㅤhyperlaserㅤ,, }}$ ${{\color{#5e96b6} (＾ω＾)ㅤ..}}$ ${{\color{#447fb4} any \space / }}$ ${{\color{#87acb1} none }}$ ${{\color{#81b6c3} pronouns \spaceㅤㅤㅤㅤㅤㅤ 
-꒰  }}$ <img width="68" height="18" alt="tumblr_f628bb48a09f2f83226e098e58f6842b_3c25de8a_75" src="https://github.com/user-attachments/assets/7fb9934e-a7cf-4e81-81b3-6253dd581f40" />  ${{\color{#81b6c3} <3 ⸝⸝⸝  }}$ <img width="49" height="18" alt="13fot8" src="https://github.com/user-attachments/assets/66e75f1e-82b4-435d-abc5-7bf3b29b59f9" />
+꒰  }}$ <img width="68" height="18" alt="tumblr_f628bb48a09f2f83226e098e58f6842b_3c25de8a_75" src="https://github.com/user-attachments/assets/7fb9934e-a7cf-4e81-81b3-6253dd581f40" />  ${{\color{#81b6c3} <3 ⸝⸝⸝ .𓏲ּ𝄢 }}$ <img width="49" height="18" alt="13fot8" src="https://github.com/user-attachments/assets/66e75f1e-82b4-435d-abc5-7bf3b29b59f9" />
 
 
 <div align="left" /> ㅤㅤ
