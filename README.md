@@ -22,7 +22,7 @@ spax
 | <img src="https://files.catbox.moe/8jwgyy.png" width="55px" align="left" > ${{\color{#447fb4} to }}$ ${{\color{#5e96b6} be }}$ ${{\color{#81b6c3} made }}$ ${{\color{#447fb4} of }}$ ${{\color{#8ea0a4} flesh }}$ ${{\color{#5e96b6} was }}$ ${{\color{#81b6c3} humiliation }}$ |
 |------------------------------|
 
-${{\color{#81b6c3} hyperlaser }}$ ${{\color{#5e96b6} ... }}$ ${{\color{#447fb4} any \space / }}$ ${{\color{#8ea0a4} none }}$ ${{\color{#81b6c3} pronouns }}$ <img width="68" height="18" alt="tumblr_f628bb48a09f2f83226e098e58f6842b_3c25de8a_75" src="https://github.com/user-attachments/assets/7fb9934e-a7cf-4e81-81b3-6253dd581f40" />
+${{\color{#81b6c3} ‿‿ hyperlaser }}$ ${{\color{#5e96b6} ‿‿ .. }}$ ${{\color{#447fb4} any \space / }}$ ${{\color{#8ea0a4} none }}$ ${{\color{#81b6c3} pronouns }}$ <img width="68" height="18" alt="tumblr_f628bb48a09f2f83226e098e58f6842b_3c25de8a_75" src="https://github.com/user-attachments/assets/7fb9934e-a7cf-4e81-81b3-6253dd581f40" />
 
 <div align="left" /> ㅤㅤ
    
