@@ -4,7 +4,7 @@
    
    <img src="https://files.catbox.moe/34t595.png" align="left" width="380px" /> 
    
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=black&right_color=lightblue&left_text=nevermind)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=dullblue&right_color=lightblue&left_text="^ω^)
  
    
    nvm wip
@@ -18,7 +18,7 @@
 
 spax
 
-| <img src="https://files.catbox.moe/8jwgyy.png" width="55px" align="left" > ${{\color{#00000} testing }}$ |
+| <img src="https://files.catbox.moe/8jwgyy.png" width="55px" align="left" > ${{\color{#447fb4} to }}$ ${{\color{#5e96b6} be }}$ ${{\color{#81b6c3} made }}$ ${{\color{#447fb4} of }}$ ${{\color{#8ea0a4} flesh }}$ ${{\color{#5e96b6} was }}$ ${{\color{#81b6c3} humiliation }}$ |
 |------------------------------|
 
 words words blinkes 
