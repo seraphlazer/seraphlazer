@@ -22,7 +22,7 @@
 | <img src="https://files.catbox.moe/8jwgyy.png" width="55px" align="left" > ${{\color{#447fb4} to }}$ ${{\color{#5e96b6} be }}$ ${{\color{#81b6c3} made }}$ ${{\color{#447fb4} of }}$ ${{\color{#a4c1c6} flesh }}$ ${{\color{#5e96b6} was }}$ ${{\color{#81b6c3} humiliation }}$ |
 |------------------------------|
 
-${{\color{#81b6c3} @ ㅤhyperlaserㅤ,, }}$ ${{\color{#5e96b6} (＾ω＾)ㅤ..}}$ ${{\color{#447fb4} any \space / }}$ ${{\color{#87acb1} none }}$ ${{\color{#81b6c3} pronouns \space ꒰  }}$ <img width="68" height="18" alt="tumblr_f628bb48a09f2f83226e098e58f6842b_3c25de8a_75" src="https://github.com/user-attachments/assets/7fb9934e-a7cf-4e81-81b3-6253dd581f40" /> 
+${{\color{#81b6c3} @ ㅤhyperlaserㅤ,, }}$ ${{\color{#5e96b6} (＾ω＾)ㅤ..}}$ ${{\color{#447fb4} any \space / }}$ ${{\color{#87acb1} none }}$ ${{\color{#81b6c3} pronouns \space ꒰  }}$ <img width="68" height="18" alt="tumblr_f628bb48a09f2f83226e098e58f6842b_3c25de8a_75" src="https://github.com/user-attachments/assets/7fb9934e-a7cf-4e81-81b3-6253dd581f40" />  ${{\color{#81b6c3} <3 ⸝⸝⸝  }}$ 
 
 <div align="left" /> ㅤㅤ
    
