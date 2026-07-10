@@ -9,7 +9,7 @@
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=dullblue&right_color=lightblue&left_text="^ω^)
  
    
-   nvm wip
+
    
 <p align="center"> 
 
@@ -18,12 +18,12 @@
  </a>
   </p> 
 
-<img width="99" height="56" alt="68747470733a2f2f66696c65732e636174626f782e6d6f652f336d303068772e706e67" src="https://github.com/user-attachments/assets/e27236d9-77c3-4175-8acd-f33678896293" />
+
 
 | <img src="https://files.catbox.moe/8jwgyy.png" width="55px" align="left" > ${{\color{#447fb4} to }}$ ${{\color{#5e96b6} be }}$ ${{\color{#81b6c3} made }}$ ${{\color{#447fb4} of }}$ ${{\color{#a4c1c6} flesh }}$ ${{\color{#5e96b6} was }}$ ${{\color{#81b6c3} humiliation. }}$ |
 |------------------------------|
 
-${{\color{#81b6c3} ‎ ‎ ‎ ‎  ‎@ hyperlaserㅤ,, }}$ ${{\color{#5e96b6} 𐔌՞. .՞𐦯ㅤ..}}$ ${{\color{#447fb4} any \space / }}$ ${{\color{#87acb1} none }}$ ${{\color{#447fb4} pronouns‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ }}$ ${{\color{#a4c1c6} ꒰ }}$  <img width="68" height="18" alt="tumblr_f628bb48a09f2f83226e098e58f6842b_3c25de8a_75" src="https://github.com/user-attachments/assets/7fb9934e-a7cf-4e81-81b3-6253dd581f40" />  ${{\color{#a4c1c6} <3 ⸝⸝ .𓏲ּ𝄢 }}$ <img width="49" height="18" alt="13fot8" src="https://github.com/user-attachments/assets/66e75f1e-82b4-435d-abc5-7bf3b29b59f9" /> ${{\color{#a4c1c6} ꒱ }}$
+${{\color{#81b6c3} ‎ ‎ ‎ ‎  ‎@ hyperlaserㅤ,, }}$ ${{\color{#5e96b6} 𐔌՞. .՞𐦯ㅤ..}}$ ${{\color{#447fb4} any \space / }}$ ${{\color{#87acb1} none }}$ ${{\color{#447fb4} dnc \space my \space skins..‎ ‎  ‎ }}$ ${{\color{#a4c1c6} ꒰ }}$  <img width="68" height="18" alt="tumblr_f628bb48a09f2f83226e098e58f6842b_3c25de8a_75" src="https://github.com/user-attachments/assets/7fb9934e-a7cf-4e81-81b3-6253dd581f40" />  ${{\color{#a4c1c6} <3 ⸝⸝ .𓏲ּ𝄢 }}$ <img width="49" height="18" alt="13fot8" src="https://github.com/user-attachments/assets/66e75f1e-82b4-435d-abc5-7bf3b29b59f9" /> ${{\color{#a4c1c6} ꒱ }}$
 
 
 
@@ -35,7 +35,7 @@ ${{\color{#f9f0b1} ㅤㅤㅤㅤ }}$
 
 ${{\color{#81b6c3} ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ }}$
 
- ꒰ [*pronouns.cc*](https://pronouns.cc/@hyperIaser) ; [*atabook*](https://hyperlazer.atabook.org/) ; [*guns.lol*](https://guns.lol/seraphlaser) ꒱
+ ꒰ [*pronouns.cc*](https://pronouns.cc/@hyperIaser) ; [*atabook*](https://hyperlazer.atabook.org/) ; [*guns.lol*](https://guns.lol/seraphlaser) ꒱ 
   
 
 <img src="https://files.catbox.moe/j0nk9i.png" align="center" width="890px" />
