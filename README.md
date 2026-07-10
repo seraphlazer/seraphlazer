@@ -35,6 +35,7 @@ ${{\color{#f9f0b1} ㅤㅤㅤㅤ }}$
 
 ${{\color{#81b6c3} ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏ }}$
 
-\space space saving 
+ ꒰ [*pronouns.cc*](https://pronouns.cc/@hyperIaser) ; [*atabook*](https://hyperlazer.atabook.org/) ; [*guns.lol*](https://guns.lol/seraphlaser) ꒱
+  
 
 <img src="https://files.catbox.moe/j0nk9i.png" align="center" width="890px" />
