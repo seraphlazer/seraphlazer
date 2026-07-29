@@ -6,6 +6,8 @@
    
    <img src="https://files.catbox.moe/34t595.png" align="left" width="380px" /> 
    
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=700&pause=450&color=a4c1c6&width=435&lines=body+the+pistol;body+the+pistol;body+the+pistol;body+the+pistol;fire+the+pistol;fire+the+pistol;fire+the+pistol;fire+the+pistol)](https://git.io/typing-svg) <div align='center'/>
+
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=dullblue&right_color=lightblue&left_text="^ω^)
  
    
@@ -37,5 +39,6 @@ ${{\color{#81b6c3} ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏�
 
  ꒰ [*pronouns.cc*](https://pronouns.cc/@hyperIaser) ; [*atabook*](https://hyperlazer.atabook.org/) ; [*guns.lol*](https://guns.lol/seraphlaser) ꒱ 
   
+
 
 <img src="https://files.catbox.moe/j0nk9i.png" align="center" width="890px" />
