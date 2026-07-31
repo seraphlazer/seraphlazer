@@ -6,7 +6,8 @@
    
    <img src="https://files.catbox.moe/34t595.png" align="left" width="380px" /> 
    
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=700&pause=450&color=a4c1c6&width=435&lines=body+the+pistol;body+the+pistol;body+the+pistol;body+the+pistol;fire+the+pistol;fire+the+pistol;fire+the+pistol;fire+the+pistol)](https://git.io/typing-svg) <div align='center'/>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=670&color=a4c1c6&width=435&lines=Ma+Cherie,;are+you+missing+me?;恋人達は訳も無,;切っ掛けも何も無)](https://git.io/typing-svg) <div align='center'/>
+
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=happyst4rs.stars&left_color=dullblue&right_color=lightblue&left_text="^ω^)
  
