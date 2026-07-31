@@ -40,7 +40,7 @@ ${{\color{#81b6c3} ﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏﹏�
 
 <table>
   <tr>
- <td><a href="https://pronouns.cc/@hyperIaser">@pronouns</a>  ᅟᅟ⠀𓏲ּ𝄢ᅟᅟᅟ <a href="https://hyperlazer.atabook.org">@新𝖻𝗈𝗈𝗄</a> ᅟᅟᅟᅟ⠀𓏲ּ𝄢ᅟᅟᅟᅟ <a href="https://guns.lol/seraphlaser">@guns.lol</a> 
+ <td><a href="https://pronouns.cc/@hyperIaser">@pronouns</a>  ᅟᅟ⠀𓏲ּ𝄢ᅟᅟᅟ <a href="https://hyperlazer.atabook.org">@新𝖻𝗈𝗈𝗄</a>  ᅟᅟ⠀𓏲ּ𝄢ᅟᅟᅟ <a href="https://guns.lol/seraphlaser">@guns.lol</a> 
 </table>
  </tr>
 
